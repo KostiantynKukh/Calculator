@@ -1,1 +1,1 @@
-Calculator by Kostintyn kuhkh
+Calculator by Kostiantyn Kukh
